@@ -1,4 +1,4 @@
-
+Final Cut Pro for macOS vip Automation: scene-transitions & social-media-export is the best Final Cut Pro for macOS automation, featuring scene-transitions and
 
 
 
